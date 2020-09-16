@@ -1,1 +1,1 @@
-Magical Bots - [Discord Server](https://discord.gg/n3pukdT) -
+Magical Bots - [Discord Server](https://discord.gg/n3pukdT) - 
